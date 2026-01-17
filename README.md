@@ -30,6 +30,7 @@ __DNI.__
 - fake any mental illness to 'justify' your behaviour, or you romanticize it. genuinely, ew.
 - DONT spam me its genuinely so annoying
 - roleplayers
+- random mentions of sh or nsfw
 - random venting / ranting. if we are friends just ask for it before
 - if you joke about serious matters like r4pe , sh , etc. youre not funny
 - if you come to me only to hate on my favorite ships, characters or interests.. whats the point bruh
@@ -37,6 +38,7 @@ __DNI.__
 __IWC__
 - 15-17 y.o's
 - yumeshippers, i have bad experiences and yall make me a bit uncomfortable especially if you ships yourselves with my kins
+- sensitive topics eehhh i dont really mind talking about them but please ask first
 
 __SOME SHIPS I LOVE / ENJOY__
 - BERRYFUNNY, SOULJESTER, moonshell, moonflower, slumberparty, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask [DW]
