@@ -16,6 +16,7 @@ __INFO__
 - i want my boundaries respected. if i say iwc, dniuf, dni etc. you have to respect it
 - if we get close i will probably insult you jokingly, if youre uncomfortable with that tell me !! its just my love language trust
 - i love jokes, making jokes and humorous people. i may make kys/kms jokes but only if im aware you're comfortable with it. idm dark humor unless its heavy/serious topics like r4pe
+- i swear a lot. not because i think swearing is funny but i just do it ok. if you're uncomfortable with that, again, let me know
 - if youre looking for serious comfort dont come at me twin im SO bad at comforting. but i will always listen anyway. also my advices are way too honest so if youre someone who hates honesty you will most likely not like me
 - i hate competition. my mind will make anything into a fucking competition. avoid saying stuff like ''im *character* n1 fan !!'' ''i love this more than you''
   
@@ -35,6 +36,7 @@ __DNI.__
 - fake any mental illness to 'justify' your behaviour, or you romanticize it. genuinely, ew.
 - DONT spam me its genuinely so annoying
 - roleplayers
+- you ship yourself with minors characters ????? uhmm.. ok dude stay the fuck away from me
 - random mentions of sh or nsfw
 - random venting / ranting. if we are friends just ask for it before
 - if you joke about serious matters like r4pe , sh , etc. youre not funny
