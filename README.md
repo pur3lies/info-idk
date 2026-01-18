@@ -15,6 +15,7 @@ __INFO__
 - if im in a bad mood, i will tend to isolate myself, and if i dont, i beg interact with care, anything can be a trigger, and im serious unfortunately
 - i want my boundaries respected. if i say iwc, dniuf, dni etc. you have to respect it
 - if we get close i will probably insult you jokingly, if youre uncomfortable with that tell me !! its just my love language trust
+- i love jokes, making jokes and humorous people. i may make kys/kms jokes but only if im aware you're comfortable with it. idm dark humor unless its heavy/serious topics like r4pe
 - if youre looking for serious comfort dont come at me twin im SO bad at comforting. but i will always listen anyway. also my advices are way too honest so if youre someone who hates honesty you will most likely not like me
 - i hate competition. my mind will make anything into a fucking competition. avoid saying stuff like ''im *character* n1 fan !!'' ''i love this more than you''
   
