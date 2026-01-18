@@ -10,6 +10,7 @@ __INFO__
 - oh gosh i have the worst memory ever, i will forget ANYTHING. be patient if i ask you to remind me something 
 - im an __ambivert__, im okay with social situations / interactions but im also okay on my own, i'll need my spaces. i can be shy or awkward, so the 99% of times i wont interact first.
 - my __HEAVY__ / main kins are __looey__, glisten, gourdy, astro, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC] and i have more but theyre not really relevant. idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
+- oh gosh im the biggest looey kin there is trust. and im berryfunny CEO. ok ? ok.
 - i have a lot of issues which i dont wanna make my whole personality, but just a heads up : paranoia, anger / trust / jealousy issues (which im working on fixing), bpd, hypersexuality. i am very unstable in general lol but i promise im a good person ok..
 - if im in a bad mood, i will tend to isolate myself, and if i dont, i beg interact with care, anything can be a trigger, and im serious unfortunately
 - i want my boundaries respected. if i say iwc, dniuf, dni etc. you have to respect it
@@ -36,7 +37,8 @@ __DNI.__
 - random mentions of sh or nsfw
 - random venting / ranting. if we are friends just ask for it before
 - if you joke about serious matters like r4pe , sh , etc. youre not funny
-- if you come to me only to hate on my favorite ships, characters or interests.. whats the point bruh
+- if you come to me only to hate on my favorite ships, characters or interests.. keep it to yourself
+- if u heavily (and seriously) hate on looey or berryfunny. again, i dont care. and u wont like me
 
 __IWC__
 - 15-17 y.o's
