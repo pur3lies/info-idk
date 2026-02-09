@@ -28,7 +28,7 @@ __PONYTOWN INFO__
 - i hide freely btw. i dont wanna see problematic people. i dont like you = i hide you
 
 __INTERESTS / STUFF I ENJOY__
-- __dandy's world__ , hazbin hotel , cookie run kingdom , the amazing digital circus , the freak circus , spookymonth , roblox (deadly delivery, 99 nights in the forest, evade, demonology, epic minigames, let him go) zootopia , IT , squid game , south park , the amazing world of gumball , sprunki , incredibox , good omens , helluva boss , brokeback mountain , bungee jumping of their own , psychocuties , kpop demon hunters , knights of guinevere , tangled , murder drones , the gaslight district , cars , corpse bride , the nightmare before christmas , miss peregrines home for peculiar children , baseketball (older interests : lackadaisy , the owl house , ramshackle , she-ra ) +  clowns / jesters / circus related stuff
+- __dandy's world__ , hazbin hotel , cookie run kingdom , the amazing digital circus , jujutsu kaisen , the freak circus , spookymonth , roblox (deadly delivery, 99 nights in the forest, evade, demonology, epic minigames, let him go) zootopia , IT , squid game , south park , the amazing world of gumball , sprunki , incredibox , good omens , helluva boss , brokeback mountain , bungee jumping of their own , psychocuties , kpop demon hunters , knights of guinevere , tangled , murder drones , the gaslight district , cars , corpse bride , the nightmare before christmas , miss peregrines home for peculiar children , baseketball (older interests : lackadaisy , the owl house , ramshackle , she-ra ) +  clowns / jesters / circus related stuff
   
 __DNI.__
 - proshippers, likes incest, pedos, zoos, age / pet play, and yk the basic shit
