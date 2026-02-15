@@ -50,5 +50,6 @@ __IWC__
 - hazbin hotel, helluva boss, psychocuties, the freak circus fandoms
 
 __SOME SHIPS I LOVE / ENJOY__
+
 im a multishipper but my FAVORITE favorite ships are: berryfunny, souljester, slumberparty, radiostatic, satosugu, itafushi, shadowvanilla, firewind. im berryfunny ceo i swear, theyre my babies
 other ships i enjoy: moonshell, moonflower, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask || burningmilk, burningcacao, peachcacao, goldenberry, goldenlily, silentfaerie, blacaviar, cloverice, darklico, hollytaya, capsaicinjuice || radioapple, huskerdust, staticmoth, cherrisnake, madmaid, guitarspear, serapherd 
