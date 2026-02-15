@@ -55,4 +55,4 @@ im a multishipper but my FAVORITE favorite ships are: berryfunny, souljester, sl
 
 other ships i enjoy: moonshell, moonflower, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask || burningmilk, silentmilk, silentlily, burningcacao, peachcacao, goldenberry, goldenlily, silentfaerie, blacaviar, cloverice, darklico, hollytaya, capsaicinjuice || radioapple, huskerdust, staticmoth, cherrisnake, madmaid, guitarspear, serapherd 
 
-btw i enjoy most ships, unless theyre proships etc. i dont have a ''*ship* dni'' to be honest, i dont care what everyone ships, just dont be annoying with it or 
+btw i enjoy most ships, unless theyre proships etc. i dont have a ''*ship* dni'' to be honest, i dont care what everyone ships, just dont be annoying with it or whatever
