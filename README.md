@@ -9,9 +9,9 @@ __INFO__
 - i speak english and italian, eng is not my native language so i may be lowk bad at it
 - oh gosh i have the worst memory ever, i will forget ANYTHING. be patient if i ask you to remind me something 
 - im an __ambivert__, im okay with social situations / interactions but im also okay on my own, i'll need my spaces. i can be shy or awkward, so the 99% of times i wont interact first.
-- my __HEAVY__ / main kins are __looey__, glisten, gourdy, astro, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC] and i have more but theyre not really relevant. idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
+- i feel so connected to my kins, theyre so important for me ok. my __HEAVY__ / main kins include __looey__, glisten, gourdy, astro, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC], __geto__, mahito [JJK]and i have more but theyre not really relevant. idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
 - oh gosh im the biggest looey kin there is trust. and im berryfunny CEO. ok ? ok.
-- i have a lot of issues which i dont wanna make my whole personality, but just a heads up : paranoia, anger / trust / jealousy issues (which im working on fixing), bpd, hypersexuality. i am very unstable in general lol but i promise im a good person ok..
+- i have a lot of issues which i dont wanna make my whole personality, but just a heads up : paranoia, anger / trust / jealousy issues (which im working on fixing), bpd, hypersexuality. i am very unstable in general, and i may sound mean and rude
 - if im in a bad mood, i will tend to isolate myself, and if i dont, i beg interact with care, anything can be a trigger, and im serious unfortunately
 - i want my boundaries respected. if i say iwc, dniuf, dni etc. you have to respect it
 - if we get close i will probably insult you jokingly, if youre uncomfortable with that tell me !! its just my love language trust
@@ -50,6 +50,5 @@ __IWC__
 - hazbin hotel, helluva boss, psychocuties, the freak circus fandoms
 
 __SOME SHIPS I LOVE / ENJOY__
-- BERRYFUNNY, SOULJESTER, moonshell, moonflower, slumberparty, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask [DW]
-- shadowvanilla, firewind, burningmilk, burningcacao, peachcacao, goldenberry, goldenlily, silentfaerie, blacaviar, cloverice, darklico, hollytaya, capsaicinjuice [CRK]
-- RADIOSTATIC, radioapple, huskerdust, staticmoth, cherrisnake, madmaid, guitarspear, serapherd [HH]
+im a multishipper but my FAVORITE favorite ships are: berryfunny, souljester, slumberparty, radiostatic, satosugu, itafushi, shadowvanilla, firewind. im berryfunny ceo i swear, theyre my babies
+other ships i enjoy: moonshell, moonflower, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask || burningmilk, burningcacao, peachcacao, goldenberry, goldenlily, silentfaerie, blacaviar, cloverice, darklico, hollytaya, capsaicinjuice || radioapple, huskerdust, staticmoth, cherrisnake, madmaid, guitarspear, serapherd 
