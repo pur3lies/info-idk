@@ -1,7 +1,7 @@
 i really felt like doing a simple repository with all infos about me because why not ok.
 
 __INFO__
-- you can call me __jester__ or jes, or any of my __kin names__. some people call me bex too, but its an old name which im trying to get rid of it slowly, so id prefer if yall not use it
+- you can call me __jester__, jes or vex, or any of my __kin names__. 
 - im okay with nicknames ! pet names are exclusively for my bf. 
 - i use __they/them__ and __it/its__ pronouns, as i am agender and nonbinary. you can also call me by he/him or she/her occasionally, if we are close and if you're referring to me as my kins, in that case you can use the character's pronouns.
 - i am __bisexual, aegosexual and demiromantic__. i also have a boyfriend so dont flirt with me or interact with the intent of getting with me, it won't work.
