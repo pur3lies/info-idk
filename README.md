@@ -45,7 +45,7 @@ __DNI.__
 
 __IWC__
 - 15-17 y.o's
-- yumeshippers, i have bad experiences and yall make me a bit uncomfortable especially if you ships yourselves with my kins
+- yumeshippers, i have bad experiences and yall make me a bit uncomfortable (dniuf mostly)
 - sensitive topics eehhh i dont really mind talking about them but please ask first
 - hazbin hotel, helluva boss, psychocuties, the freak circus fandoms
 
