@@ -9,7 +9,7 @@ __INFO__
 - i speak english and italian, eng is not my native language so i may be lowk bad at it
 - oh gosh i have the worst memory ever, i will forget ANYTHING. be patient if i ask you to remind me something 
 - im an __ambivert__, im okay with social situations / interactions but im also okay on my own, i'll need my spaces. i can be shy or awkward, so the 99% of times i wont interact first.
-- i feel so connected to my kins, theyre so important for me ok. my __HEAVY__ / main kins include __looey__, glisten, gourdy, astro, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC], __geto__, mahito [JJK] and i have more but theyre not really relevant. idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
+- i feel so connected to my kins, theyre so important for me ok. my __HEAVY__ / main kins include __looey__, glisten, gourdy, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC], __geto__, mahito [JJK] and i have more on my pronouns.cc . idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
 - oh gosh im the biggest looey kin there is trust. and im berryfunny CEO. ok ? ok.
 - i have a lot of issues which i dont wanna make my whole personality, but just a heads up : paranoia, anger / trust / jealousy issues (which im working on fixing), bpd, hypersexuality. i am very unstable in general, and i may sound mean and rude sometimes. 
 - if im in a bad mood, i will tend to isolate myself, and if i dont, i beg interact with care, anything can be a trigger, and im serious unfortunately
@@ -28,7 +28,7 @@ __PONYTOWN INFO__
 - i hide freely btw. i dont wanna see problematic people. i dont like you = i hide you
 
 __INTERESTS / STUFF I ENJOY__
-- __dandy's world__ , hazbin hotel , cookie run kingdom , the amazing digital circus , jujutsu kaisen , the summer hikaru died , the freak circus , gachiakuta , chainsaw man , spookymonth , roblox (deadly delivery, 99 nights in the forest, evade, demonology, epic minigames, let him go) zootopia , IT , squid game , south park , the amazing world of gumball , sprunki , incredibox , good omens , helluva boss , brokeback mountain , bungee jumping of their own , psychocuties , kpop demon hunters , knights of guinevere , tangled , murder drones , the gaslight district , cars , corpse bride , the nightmare before christmas , miss peregrines home for peculiar children , baseketball (older interests : lackadaisy , the owl house , ramshackle , she-ra ) +  clowns / jesters / circus related stuff
+- __dandy's world__ , hazbin hotel , cookie run kingdom , the amazing digital circus , jujutsu kaisen , the summer hikaru died , the freak circus , gachiakuta , chainsaw man , all saints street, spookymonth , roblox (deadly delivery, 99 nights in the forest, evade, demonology, epic minigames, let him go) zootopia , IT , squid game , south park , the amazing world of gumball , sprunki , incredibox , good omens , helluva boss , brokeback mountain , bungee jumping of their own , psychocuties , kpop demon hunters , knights of guinevere , tangled , murder drones , the gaslight district , cars , corpse bride , the nightmare before christmas , miss peregrines home for peculiar children , baseketball (older interests : lackadaisy , the owl house , ramshackle , she-ra ) +  clowns / jesters / circus related stuff
   
 __DNI.__
 - proshippers, likes incest, pedos, zoos, age / pet play, and yk the basic shit
@@ -51,8 +51,5 @@ __IWC__
 
 __SOME SHIPS I LOVE / ENJOY__
 
-im a multishipper but my FAVORITE favorite ships are: berryfunny, souljester, slumberparty, radiostatic, satosugu, itafushi, pierlequin, shadowvanilla, firewind. im berryfunny ceo i swear, theyre my babies
-
-other ships i enjoy: moonshell, moonflower, inkberry, moonbunny, jewerlybox, beautysleep, balloncake, inkballoon, gambleghost, fullmoon, waterballoon, circusfreak, inkmoon, telescope, ragebait, jollyjokes, lullaby, balloonbox, ornamentcookie, basketbauble, gambleshell, timeflower, timecapsule, reflectivedetective, moonbasket, inkmask || burningmilk, silentmilk, silentlily, burningcacao, peachcacao, goldenberry, goldenlily, silentfaerie, blacaviar, cloverice, darklico, hollytaya, capsaicinjuice || radioapple, huskerdust, staticmoth, cherrisnake, madmaid, guitarspear, serapherd 
-
+im a multishipper but my FAVORITE favorite ships are: berryfunny, souljester, slumberparty, radiostatic, satosugu, sukugo, itafushi, pierlequin, shadowvanilla, firewind. im berryfunny ceo i swear, theyre my babies.
 btw i enjoy most ships, unless theyre proships etc. i dont have a ''*ship* dni'' to be honest, i dont care what everyone ships, just dont be annoying with it or whatever
