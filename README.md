@@ -29,25 +29,6 @@ __PONYTOWN INFO__
 
 __INTERESTS / STUFF I ENJOY__
 - __dandy's world__ , hazbin hotel , cookie run kingdom , the amazing digital circus , jujutsu kaisen , the summer hikaru died , the freak circus , gachiakuta , chainsaw man , all saints street, spookymonth , roblox (deadly delivery, 99 nights in the forest, evade, demonology, epic minigames, let him go) zootopia , IT , squid game , south park , the amazing world of gumball , sprunki , incredibox , good omens , helluva boss , brokeback mountain , bungee jumping of their own , psychocuties , kpop demon hunters , knights of guinevere , tangled , murder drones , the gaslight district , cars , corpse bride , the nightmare before christmas , miss peregrines home for peculiar children , baseketball (older interests : lackadaisy , the owl house , ramshackle , she-ra ) +  clowns / jesters / circus related stuff
-  
-__DNI.__
-- proshippers, likes incest, pedos, zoos, age / pet play, and yk the basic shit
-- younger than 15. unless we met way before
-- fake any mental illness to 'justify' your behaviour, or you romanticize it. genuinely, ew.
-- DONT spam me its genuinely so annoying
-- roleplayers
-- you ship yourself with minors (kids) characters ????? uhmm.. ok dude stay the fuck away from me
-- random mentions of sh or nsfw
-- random venting / ranting. if we are friends just ask for it before
-- if you joke about serious matters like r4pe , sh , etc. youre not funny
-- if you come to me only to hate on my favorite ships, characters or interests.. keep it to yourself
-- if u heavily (and seriously) hate on looey or berryfunny. again, i dont care. and u wont like me
-
-__IWC__
-- 15-17 y.o's
-- yumeshippers, i have bad experiences and yall make me a bit uncomfortable (dniuf mostly)
-- sensitive topics eehhh i dont really mind talking about them but please ask first
-- hazbin hotel, helluva boss, psychocuties, the freak circus fandoms
 
 __SOME SHIPS I LOVE / ENJOY__
 
