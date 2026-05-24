@@ -9,7 +9,7 @@ __INFO__
 - i speak english and italian, eng is not my native language so i may be lowk bad at it
 - oh gosh i have the worst memory ever, i will forget ANYTHING. be patient if i ask you to remind me something 
 - im an __ambivert__, im okay with social situations / interactions but im also okay on my own, i'll need my spaces. i can be shy or awkward, so the 99% of times i wont interact first.
-- i feel so connected to my kins, theyre so important for me ok. my __HEAVY__ / main kins include __looey__, glisten, gourdy, shrimpo [DW], __alastor__, angel [HH], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC], __geto__, mahito [JJK] and i have more on my pronouns.cc . idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
+- i feel so connected to my kins, theyre so important for me ok. my __HEAVY__ / main kins include __looey__, glisten, gourdy, shrimpo [DW], __jax__, pomni [TADC], __shadowmilk cookie__ [CRK], pierrot [TFC], __geto__, mahito [JJK] and i have more on my pronouns.cc . idm doubles unless you say ''im this character more than you'' like ?? oh ok. in that case DNI.
 - oh gosh im the biggest looey kin there is trust. and im berryfunny CEO. ok ? ok.
 - i have a lot of issues which i dont wanna make my whole personality, but just a heads up : paranoia, anger / trust / jealousy issues (which im working on fixing), bpd, hypersexuality. i am very unstable in general, and i may sound mean and rude sometimes. 
 - if im in a bad mood, i will tend to isolate myself, and if i dont, i beg interact with care, anything can be a trigger, and im serious unfortunately
