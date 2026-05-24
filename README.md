@@ -2,9 +2,9 @@ i really felt like doing a simple repository with all infos about me because why
 
 __INFO__
 - you can call me __jester__, jes or vex, or any of my __kin names__. 
-- im okay with nicknames ! while pet names are exclusively for my partner. 
+- im okay with nicknames
 - i use __they/them__ and __it/its__ pronouns, as i am agender and nonbinary. you can also call me by he/him or she/her occasionally, if we are close and if you're referring to me as my kins, in that case you can use the character's pronouns.
-- i am __bisexual, aegosexual and demiromantic__. i also have a boyfriend so dont flirt with me or interact with the intent of getting with me, it won't work.
+- i am __bisexual, aegosexual and demiromantic__. 
 - i am __19__. despite this im very childish and stupid ik but still, im an adult, i dont want kids interacting with me
 - i speak english and italian, eng is not my native language so i may be lowk bad at it
 - oh gosh i have the worst memory ever, i will forget ANYTHING. be patient if i ask you to remind me something 
